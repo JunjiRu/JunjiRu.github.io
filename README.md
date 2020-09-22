@@ -1,1 +1,1 @@
-# JunjiRu.-github.io
+# JunjiRu.github.io
